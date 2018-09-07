@@ -1,2 +1,2 @@
 # who_dares_wins
-"Hey you, out there in the world, can you hear me?"
+"Hey Richard, be brutal on me. Lord knows I need it."
